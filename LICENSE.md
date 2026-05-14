@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with smart dydx trading bot Algorithm | impermanent-loss-protection + multi-chain-support, the #1 dydx trading bot. Includes impermanent-loss-protection and
 
 
 
